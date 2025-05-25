@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on my homw=ework
 - 📫 How to reach me cook
 - 😄 Pronouns: hhhhhhhhhhhhha~
-- ⚡ Fun fact: c'est traiment bien! 
+- ⚡ Fun fact: c'est vraiment bien! 
 
 <!---
 CXP-2024/CXP-2024 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
