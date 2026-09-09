@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @CXP
-- 👀 I’m interested in Genshin
-- 🌱 I’m currently learning phigros
-- 💞️ I’m looking to collaborate on my homw=ework
+- 👀 I’m interested in researching
 - 📫 How to reach me cook
 - 😄 Pronouns: hhhhhhhhhhhhha~
 - ⚡ Fun fact: c'est vraiment bien! 
